@@ -1,1 +1,1 @@
-# -life-deficit.github.io
+# life-deficit.github.io
